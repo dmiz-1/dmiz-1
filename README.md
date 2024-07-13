@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dmiz-1
+- 👀 I’m interested in create penguin mod projects
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on none
+- 📫 How to reach me no!
